@@ -3,4 +3,4 @@ The funds raised by the cryptocurrency’s “initial coin offering” (ICO) wou
 Purchasers of the cryptocurrency could then use the digital “tokens” they receive in exchange to shop at local establishments, 
 or even possibly pay their rent at local participating apartment complexes.
 the coin that will be use is VVRE Valley View Real Estate.
-website is valleyviewrealestatellc.com
+website is affordablehousingcenters.wordpress.com
